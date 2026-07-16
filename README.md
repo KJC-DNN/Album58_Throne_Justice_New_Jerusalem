@@ -1,5 +1,5 @@
 # Album 58 - Throne of Justice &amp; New Jerusalem Shines
-Proclamation of final judgment and victory of the Lamb.
+Christian worship celebrating the Great White Throne, judgment of evil, and the glory of New Jerusalem.
 
 ## Songs:
 
